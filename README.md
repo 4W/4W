@@ -1,4 +1,5 @@
 ## Hey! I'm 4W
 
-### :D
+### The username store
+https://discord.gg/3PhyYGNBXG
 
