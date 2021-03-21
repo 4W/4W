@@ -1,5 +1,3 @@
 ## Hey! I'm 4W
 
-### The username store
-https://discord.gg/3PhyYGNBXG
-
+### dr6gon on wickr if u need anything
