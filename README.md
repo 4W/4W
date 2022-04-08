@@ -1,3 +1,3 @@
-most tools on my github are for myself and for educational purposes - though feel free to use them :)
+My opensource code is free to use in any way you want, as long as you take responsibility for using it.
 
-if you need anything made antarctic#2100
+Custom inquiries -> antarctic#2100
